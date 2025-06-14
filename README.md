@@ -1,1 +1,0 @@
-basegymrajouri.me
